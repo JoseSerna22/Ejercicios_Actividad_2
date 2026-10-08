@@ -1,1 +1,1 @@
-# Ejercicios_Actividad_2
+# Ejercicios_Actividad_2_Jose_Miguel_Serna_Granda
